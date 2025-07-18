@@ -52,5 +52,5 @@ Subham Mohapatra
 
 📧 Email: mohapatrasubhamkumar2@gmail.com
 
-🔗 LinkedIn: linkedin.com/in/subhammohapatra07
+🔗 LinkedIn: https://www.linkedin.com/in/subham-mohapatra07/
 
