@@ -43,9 +43,14 @@ amazon-clone/
 
 
 🙋‍♂️ About Me
+
 Subham Mohapatra
+
 🎓 CSE Undergrad | 💻 Web Development Enthusiast
+
 📍 Odisha, India
+
 📧 Email: mohapatrasubhamkumar2@gmail.com
+
 🔗 LinkedIn: linkedin.com/in/subhammohapatra07
 
